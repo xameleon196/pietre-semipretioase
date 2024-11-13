@@ -1,6 +1,6 @@
 Descoperă Semnificația Pietrelor Semiprețioase: Dezvăluie Proprietățile Lor Ascunse
 
-`https://zenaura.ro/pietre-brute-pretioase-si-semipretioase/`_
+https://zenaura.ro/pietre-brute-pretioase-si-semipretioase/
 
 Pietrele prețioase sunt mult  mai mult decât o simplă fațetă frumoasă. Strălucitoare, sublime și cu o mare varietate de culori și proprietăți vindecătoare, nu este de mirare că fascinația noastră pentru aceste pietre prețioase s-a transmis din lumea antică până în vremurile moderne. De la designurile feminine de bijuterii care valorifică la maximum frumusețea pietrelor prețioase, până la decorul de casă, instrumentele de meditație, pietrele șlefuite și multe altele - entuziaștii de pietre (sau chiar și cei care sunt doar curioși de natura captivantă a pietrelor semiprețioase) vor descoperi un peisaj fascinant deschizându-se în fața lor. Bogate în simbolism spiritual, metafizic și istoric, cristalele vindecătoare nu și-au pierdut strălucirea. Explorăm mai profund semnificația istorică și culturală a pietrelor prețioase și evidențiem unele dintre cele mai râvnite pietre semiprețioase pentru a te ajuta să înțelegi potențialul ascuns al cristalelor.
 
