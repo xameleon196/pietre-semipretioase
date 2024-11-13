@@ -60,3 +60,5 @@ Pietrele de aer pot fi Fluoritul sau Sodalitul. Ele sunt adesea asociate cu clar
 .. toctree::
    :maxdepth: 2
    :caption: Contents
+
+.
